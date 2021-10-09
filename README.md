@@ -1,0 +1,3 @@
+- 👋 Hi, I'm @lpanella
+- 👀 I'm interested in donuts
+- 🌱 I'm currently learning decentralized life
